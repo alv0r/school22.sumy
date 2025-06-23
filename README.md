@@ -1,0 +1,1 @@
+# school22.sumy
